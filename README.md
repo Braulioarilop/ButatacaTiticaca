@@ -1,2 +1,0 @@
-# ButatacaTiticaca
-Pagina de critica
